@@ -3,6 +3,6 @@ hi im trying to firgure github out
 
 <p align="center">
 
-<img src="[![Untitled51-20240822225635.png](https://i.postimg.cc/Qdx4Lw4j/Untitled51-20240822225635.png)](https://postimg.cc/GHVJG7nf)"
+  [![Untitled51-20240822225635.png](https://i.postimg.cc/Qdx4Lw4j/Untitled51-20240822225635.png)](https://postimg.cc/GHVJG7nf)
 
 </p>
