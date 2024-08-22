@@ -2,6 +2,6 @@
 
 <p align="center">
 
-    <img "https://i.postimg.cc/Qdx4Lw4j/Untitled51-20240822225635.png">
+hi
 
 </p>
