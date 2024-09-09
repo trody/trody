@@ -6,4 +6,4 @@
 　
 
  　 
-⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀⠀⠀  ⠀⠀  ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ trent 　　　 he / mutt 　　　 15  yo 　　　 infp 　　　 2w1⠀⠀ !
+⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀⠀⠀  ⠀⠀  ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀⠀ ⠀ trent　　　he / mutt　　　15  yo　　　infp　　　2w1　　　!
