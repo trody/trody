@@ -6,6 +6,6 @@
 　
 
  　 
-⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀  ⠀⠀  ⠀⠀     ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀ ⠀ trent　　　he / mutt　　　15  yo　　　infp　　　2w1　　　!
+⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀  ⠀⠀  ⠀⠀     ⠀⠀⠀ ⠀⠀ ⠀⠀ ⠀⠀  ⠀ trent　　　he / mutt　　　15  yo　　　infp　　　2w1　　　!
 
-⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀  ⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀  ⠀⠀ ⠀ ⠀⠀    ⠀    ⠀   <ins>rentry</ins> 
+⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀  ⠀⠀ ⠀ ⠀⠀⠀⠀    ⠀  ⠀⠀ ⠀ ⠀⠀    ⠀    ⠀   <ins>[rentry](https://rentry.co/hollywood)</ins> 　　<ins>atabook</ins> 　　<ins>strawpage</ins> 　　<ins>prns.cc</ins>　　 <ins>ponytown</ins>
