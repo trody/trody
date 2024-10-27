@@ -1,4 +1,4 @@
-⠀⠀⠀ ⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=ce4033&label=insanity+count)</p>
-⠀⠀⠀⠀ ⠀ <p align="center">![](https://64.media.tumblr.com/5e3ddaa8ffa7c945543920e8432e41c3/60198fbe7c838325-aa/s100x200/046a2a202d1144d5672bd143954e1264c63cf4a8.gifv)</p>
+⠀⠀⠀ ⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=939393&label=insanity+count)</p>
+⠀⠀⠀⠀ ⠀ <p align="center">![](https://64.media.tumblr.com/9d185376e2422440c68db34a1a33e7da/5f748f4e1f6cef3e-7e/s100x200/14ef5542155bc31c386d00adb796c0ee801c4ba1.gifv)</p>
 
 ⠀⠀⠀⠀ ⠀<p align="center">[directory](https://rentry.co/hollywood) [ponytown](https://rentry.co/fourponytown)</p>
