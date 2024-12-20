@@ -5,10 +5,10 @@
 ⠀
 
 
-⠀⠀⠀ ⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=trody&style=flat-square&color=3B3D83&label=⠀⠀pals⠀⠀)</p>
-⠀⠀⠀ ⠀⠀ <p align="center">![](https://media.discordapp.net/attachments/1174359818836910140/1317550108816179372/Untitled134_20241215034326.png?ex=675f17a8&is=675dc628&hm=8f2b54749cecb1a4a9906dd025eaa6250524d42d1fa13c92cebdd21e5b9c1f91&=&format=webp&quality=lossless&width=458&height=327)</p>
-⠀⠀⠀ ⠀⠀ <p align="center">[directory](https://rentry.co/hollywood) [byi(pt)](https://rentry.co/fourponytown) [ata](https://trody.atabook.org/)</p>
-⠀⠀⠀ ⠀⠀ <p align="center">[color my tree ^_^](https://colormytree.me/2024/01HJ1093TRVB7MQJ0XDW9JQJA9)</p>
+⠀⠀⠀ ⠀⠀ <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=ED2C17&label=⠀pony+pals⠀)</p>
+⠀⠀⠀ ⠀⠀ <p align="center">![](https://i.pinimg.com/474x/58/c8/03/58c803ac3f8da5fa101e4b5afc1d243d.jpg)</p>
+⠀⠀⠀ ⠀⠀ <p align="center">[directory](https://rentry.co/hollywood) [ponytown](https://rentry.co/fourponytown) [atabook](https://trody.atabook.org/)</p>
+⠀⠀⠀ ⠀⠀ <p align="center">[color my tree ^_^ pretty plsz](https://colormytree.me/2024/01HJ1093TRVB7MQJ0XDW9JQJA9)</p>
 ⠀
 ⠀
 ⠀
