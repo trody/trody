@@ -1,4 +1,2 @@
-##### <p align="center">![](https://images-ext-1.discordapp.net/external/v5lgezh0QVzqCi9bgSEYLu_lPW-P0LQnt00P6dbaQBc/https/i.postimg.cc/5tn2WF4N/Untitled130-Restored-20250202230745.png?format=webp&quality=lossless&width=205&height=261)</p>
-##### <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=3f3f3f&label=⠀(๑´ㅂ`๑)⠀ㅤㅤㅤㅤㅤ&style=flat)</p>
-
-##### <p align="center">retheme soon</p> 
+##### <p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=true&bar_color=777777&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&redirect=true)</p>
+##### <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=3f3f3f&label=herro?&style=flat)⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀</p>
