@@ -1,7 +1,7 @@
 
 ⠀⠀
 ⠀⠀⠀⠀
-##### <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=3f3f3f&label=herro?&style=flat)</p>
+##### <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=e28c36&label=friends&style=flat)</p>
 ⠀⠀
 ⠀⠀
 ⠀⠀
