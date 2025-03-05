@@ -1,7 +1,7 @@
 
 ⠀⠀
 ⠀⠀⠀⠀
-##### <p align="center">⠀⠀⠀⠀⠀⠀hi ![info](https://rentry.co/hollywood)</p>
+##### <p align="center">⠀⠀⠀⠀⠀⠀hi [info](https://rentry.co/hollywood)</p>
 
 ##### <p align="center">![](https://file.garden/Z6h2bh-K9iNK3QVg/GViLmUWXgAAnAmp-removebg-preview.png)</p>
 
