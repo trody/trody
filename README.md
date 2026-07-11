@@ -5,5 +5,5 @@
 </p>
 
 <p align="center">
-  <a href="https://rentry.co/saparata"> 𝐫𝐞𝐧𝐭𝐫𝐲</a>　　　⠀ ⇢ ⠀　　　<a href="https://infected.atabook.org"> 𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a>
+  <a href="https://rentry.co/saparata"> 𝐫𝐞𝐧𝐭𝐫𝐲</a>　　　⠀ <img width="20" height="auto" alt="image" src="https://file.garden/Z4-KIXj5okOfzeyR/STASH/Pixels/IMG-0576.gif" /> ⠀　　　<a href="https://infected.atabook.org"> 𝐚𝐭𝐚𝐛𝐨𝐨𝐤</a>
   </p>
