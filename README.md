@@ -1,6 +1,6 @@
-##### <p align="center">![](https://komarev.com/ghpvc/?username=trody&color=B8BC60&label=⠀🤎⠀⠀&style=flat)</p>
+##### <p align="center">⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀![](https://komarev.com/ghpvc/?username=trody&color=424242&label=⠀⑅ִ۫⠀⠀&style=flat)</p>
 
-##### <p align="center"><img width="500" height="300" alt="image" src="https://files.catbox.moe/9kzvq3.png" />
+##### <p align="center"><img width="250" height="auto" alt="image" src="https://files.catbox.moe/9kzvq3.png" /></p>
+
+<p align="center">
 </p>
-
-##### <p align="center">[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=999999&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=3152hej4rx6alviruqcx4h2xzbqi&redirect=true)</p>
